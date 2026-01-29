@@ -1,10 +1,10 @@
 # CloudUpUp官网地址最新入口
 
-永久域名：[cloudupup.net](https://cf.cloudupup12.com/auth/register?code=TpIw)
+永久域名：[cloudupup.net](https://cf.cloudupup07.com/auth/register?code=TpIw)
 
 最新地址1：[cloudupup7.com](https://cf.cloudupup07.com/auth/register?code=TpIw)
 
-最新地址2：[cloudupup02.cc](https://up02.cloudupup01.cc/auth/register?code=TpIw)
+最新地址2：[cloudupup.org](https://cf.cloudupup07.com/auth/register?code=TpIw)
 
 ## CloudUpUp优惠码
 
