@@ -8,19 +8,11 @@
 
 ## CloudUpUp优惠码
 
-CloudUpUp聖誕節活動+元旦促销中：
+CloudUpUp 2026年春节活动：
 
-全场套餐9折优惠券：[cloudupup](https://cf.cloudupup07.com/auth/register?code=TpIw)
+全场套餐9折优惠券：[zRtC195i](https://cf.cloudupup07.com/auth/register?code=TpIw)
 
 > 另外，将对每天第9/19/29/39/49/59/69/79/89/99位购买的用户订单返还50%金额至余额，5%概率返还100%金额到账户余额。
-
----
-
-**温馨提示：任何服务均有跑路风险，请自行注意防范！**
-
-**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
-
----
 
 ## CloudUpUp简介
 
