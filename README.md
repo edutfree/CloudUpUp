@@ -1,16 +1,16 @@
 # CloudUpUp官网地址最新入口
 
-永久域名：[cloudupup.net](https://cf.cloudupup07.com/auth/register?code=TpIw)
+永久域名：[cloudupup.net](https://cf.cloudupup13.com/auth/register?code=TpIw)
 
-最新地址1：[cloudupup7.com](https://cf.cloudupup07.com/auth/register?code=TpIw)
+最新地址1：[cloudupup7.com](https://cf.cloudupup13.com/auth/register?code=TpIw)
 
-最新地址2：[cloudupup.org](https://cf.cloudupup07.com/auth/register?code=TpIw)
+最新地址2：[cloudupup.org](https://cf.cloudupup13.com/auth/register?code=TpIw)
 
 ## CloudUpUp优惠码
 
 CloudUpUp 2026年春节活动：
 
-全场套餐9折优惠券：[zRtC195i](https://cf.cloudupup07.com/auth/register?code=TpIw)
+全场套餐9折优惠券：[zRtC195i](https://cf.cloudupup13.com/auth/register?code=TpIw)
 
 > 另外，将对每天第9/19/29/39/49/59/69/79/89/99位购买的用户订单返还50%金额至余额，5%概率返还100%金额到账户余额。
 
